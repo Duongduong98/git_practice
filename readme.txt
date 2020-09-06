@@ -7,4 +7,7 @@ Everyone here is friendly,humble and creative.
 Be humble and kind !
 
 
+Don't be scared !!
+
+
 
